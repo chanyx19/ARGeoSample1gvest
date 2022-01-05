@@ -1,1 +1,0 @@
-# ARGeoSample1gvest
